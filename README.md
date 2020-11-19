@@ -2,7 +2,7 @@
 
 What is Cryptomate Exchange? 
 
-<a href=" https://coinpedia.org/exchange/cryptomate/">Cryptomate</A> is a simple to utilize stage that permits British clients to buy digital money through moment bank move. Cryptomate is a digital currency trade that associates purchasers and venders of cryptographic forms of money inside the UK. 
+<a href="https://coinpedia.org/exchange/cryptomate/">Cryptomate</A> is a simple to utilize stage that permits British clients to buy digital money through moment bank move. Cryptomate is a digital currency trade that associates purchasers and venders of cryptographic forms of money inside the UK. 
 
 The administration was dispatched to help overcome any issues among GBP and cryptographic money trade inside the UK and to make the most well known advanced monetary standards accessible to nearly anybody with web based banking. 
 
@@ -22,6 +22,6 @@ Client service: There is no live visit. The main strategy to arrive at the trade
 
 Cryptomate Exchange Fees and Limits :
 
-The trade doesn't charge withdrawal expenses since reserves bought are sent legitimately to an outer wallet. Cryptomate offers wire move as the store strategy. Their clients spend a gauge of 7% on exchange charges, which is over the business normal. <a href=" https://coinpedia.org/exchange/cryptomate/">Cryptomate review</A> is quick and offers the joining of the Pound as an immediate installment money. 
+The trade doesn't charge withdrawal expenses since reserves bought are sent legitimately to an outer wallet. Cryptomate offers wire move as the store strategy. Their clients spend a gauge of 7% on exchange charges, which is over the business normal. <a href="https://coinpedia.org/exchange/cryptomate/">Cryptomate review</A> is quick and offers the joining of the Pound as an immediate installment money. 
 
 Unconfirmed records are restricted to £200 pounds worth of crypto exchanges every day, while checked clients can make up to £1000 exchanges every day. It should be noticed that Cryptomate just acknowledges cash moves in pounds.
